@@ -1,1 +1,1 @@
-# NishantAryanSingh.github.io
+# nishantaryansingh.github.io
